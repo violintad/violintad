@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @violintad
+- 👀 I’m interested in Video Game Design
+- 🌱 I’m currently studying Viola Performance and Computer Science at Vanderbilt University
+- 💞️ I’m looking to collaborate on any gaming projects!
+- 📫 How to reach me -> violintad@gmail.com and (919) 400-1852
